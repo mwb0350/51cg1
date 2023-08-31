@@ -22,7 +22,7 @@
 
 51吃瓜免费App 安卓下载安装包（备用下载一）http://qr.a2q3fcadf27.cn/s/SLw 
 
-51吃瓜免费App 安卓下载安装包（备用下载二）https://github.com/51chigua/51chigua/blob/main/51cg_1.9.0_230705_4.apk
+51吃瓜免费App 安卓下载安装包（备用下载二）https://github.com/51cg1/51cg1/blob/main/51cg_1.9.0_230705_4.apk
 
 ----------------------------
 
