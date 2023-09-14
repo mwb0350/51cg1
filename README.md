@@ -1,10 +1,10 @@
-### 51吃瓜网 最新地址 👋 (最新更新时间2023-09-13)
+### 51吃瓜网 最新地址 👋 (最新更新时间2023-09-14)
 
-51吃瓜免费App https://20.amzkzl.com
+51吃瓜免费App https://c31c.amzkzl.com
 
-51吃瓜网页版最新官网 https://51cg100.co
+51吃瓜网页版最新官网 https://51cg100.life
 
-51吃瓜备用线路1 https://51cg10.me
+51吃瓜备用线路1 https://51cg100.co
 
 51吃瓜备用线路2 https://51cg10.org
 
@@ -14,7 +14,7 @@
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13
 
-加入微信扣扣粉丝群 https://51cg100.co/?path=/qun.html
+加入微信扣扣粉丝群 https://51cg100.life/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/keqi7777
 
