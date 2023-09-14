@@ -2,7 +2,7 @@
 
 51吃瓜免费App https://c31c.amzkzl.com
 
-51吃瓜网页版最新官网 https://51cg100.life
+51吃瓜网页版最新官网 https://aadnrt.com
 
 51吃瓜备用线路1 https://51cg100.co
 
@@ -14,7 +14,7 @@
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13
 
-加入微信扣扣粉丝群 https://51cg100.life/?path=/qun.html
+加入微信扣扣粉丝群  https://aadnrt.com/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/keqi7777
 
