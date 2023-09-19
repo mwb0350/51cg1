@@ -1,10 +1,10 @@
-### 51吃瓜网 最新地址 👋 (最新更新时间2023-09-14)
+### 51吃瓜网 最新地址 👋 (最新更新时间2023-09-19)
 
-51吃瓜免费App https://c31c.amzkzl.com
+51吃瓜免费App https://c0.amzkzl.com
 
-51吃瓜网页版最新官网 https://aadnrt.com
+51吃瓜网页版最新官网 https://51cg123.com
 
-51吃瓜备用线路1 https://51cg100.co
+51吃瓜备用线路1 https://aadnrt.com
 
 51吃瓜备用线路2 https://51cg10.org
 
@@ -14,7 +14,7 @@
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13
 
-加入微信扣扣粉丝群  https://aadnrt.com/?path=/qun.html
+加入微信扣扣粉丝群  https://51cg123.com/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/keqi7777
 
@@ -42,7 +42,7 @@
 
 4.以上方法都不行请截图发送给群管理反馈～
 
-5.下载蚂蚁加速器：https://4504.obqyyh.com 科学上网工具
+5.下载蚂蚁加速器：https://cce.obqyyh.com/c-5016/a-brEXR 科学上网工具
 
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
