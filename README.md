@@ -1,6 +1,6 @@
 ### 51吃瓜网 最新地址 👋 (最新更新时间2023-09-22)
 
-51吃瓜免费App https://a32.amzkzl.com
+51吃瓜免费App https://e86kw.tbculj.com
 
 51吃瓜网页版最新官网 https://51cg666.com
 
