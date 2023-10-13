@@ -1,8 +1,8 @@
 ### 51吃瓜网 最新地址 👋 (最新更新时间2023-10-10)
 
-51吃瓜免费App https://53.jszrer.com
+51吃瓜免费App https://4888.jszrer.com
 
-51吃瓜网页版最新官网 https://51cg.lol
+51吃瓜网页版最新官网 https://51cg0.me
 
 51吃瓜备用线路1 https://51chigua.pro
 
