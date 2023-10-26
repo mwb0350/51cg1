@@ -20,15 +20,13 @@
 
 ----------------------------
 
-51吃瓜免费App 安卓下载安装包（备用下载一）http://qr.a2q3fcadf27.cn/s/SLw 
+51吃瓜免费App 安卓下载安装包（备用下载一）https://wwg.lanzouy.com/51chigua
 
-51吃瓜免费App 安卓下载安装包（备用下载二）https://github.com/51chigua/51chigua/blob/main/51cg_1.9.0_230705_4.apk
+51吃瓜免费App 安卓下载安装包（备用下载二）https://wwg.lanzouy.com/51chigua-android
 
 ----------------------------
 
-51吃瓜免费App iOS下载安装（备用下载一） http://qr.a2q3fcadf27.cn/s/Stv
-
-51吃瓜免费App iOS下载安装（备用下载二） https://aff.cggo.life/index/pwa
+51吃瓜免费App iOS下载安装（备用下载一） https://wwg.lanzouy.com/51chigua-ios
 
 ----------------------------
 
